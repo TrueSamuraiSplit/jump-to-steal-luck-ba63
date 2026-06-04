@@ -1,4 +1,4 @@
-
+survive the apocalypse Script custom is the best survive the apocalypse Script, featuring no clip and auto-heal. Safe and powerful for all your needs.
 
 
 
